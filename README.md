@@ -6,5 +6,7 @@
 
 有任何聯絡需求，請藉由下列管道
 Gmail : laoda1130.yt@gmail.com
+
 Github : https://github.com/laoda1130
+
 youtube : https://www.youtube.com/channel/UCeRTs1zRwL1owNGe28CDKXQ
